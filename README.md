@@ -8,7 +8,7 @@
 - @Djalma.santiago58
 
 
-  ![](https://media1.tenor.com/m/eRKuUGeLv4wAAAAd/python-jmk.gif
+  ![](https://media1.tenor.com/m/eRKuUGeLv4wAAAAd/python-jmk.gif)
 
 
 
