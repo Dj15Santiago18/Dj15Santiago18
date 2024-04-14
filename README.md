@@ -1,15 +1,15 @@
-### Hi there 👋
+### Olá, seja bem vindo ao meu perfil Prof. Djalma Santiago 👋
 
 **Dj15Santiago18/Dj15Santiago18** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+- Comecando a utilização dia plataforma hoje no dia 14 de abril de 2024 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Estou estudando pelo PROGRAMAÇÂO [ALURA](https://www.alura.com.br)
+- @Djalma.santiago58
+
+
+  ![](https://media1.tenor.com/m/eRKuUGeLv4wAAAAd/python-jmk.gif
+
+
+
+  ### WESLEY você é o FODÃO DA PORRA TODA!
